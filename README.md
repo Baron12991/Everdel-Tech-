@@ -1,1 +1,1 @@
-# Everdel Tech
+# everdel tech
